@@ -1,1 +1,1 @@
-# gipno.github.io
+# https://gipnotoad.github.io/Gipno/
