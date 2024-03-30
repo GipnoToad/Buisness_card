@@ -1,1 +1,1 @@
-# https://gipnotoad.github.io/Gipno/
+# https://gipnotoad.github.io/Buisness_card/
